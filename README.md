@@ -1,4 +1,4 @@
-# Massacre at Millbrook
+# Massacre at Millbrook — version G
 
 > **⚠ Content warning — 18+.** This game contains graphic violence, gore and blood. It is not suitable for minors.
 
